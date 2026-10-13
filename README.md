@@ -224,4 +224,4 @@ Friday the 13th is available as a complete free version, with all features and u
 Don’t miss out on the excitement! Download **Friday the 13th** for free today and step into the horror!
 
 ---
-**Last updated:** 2026-10-13 17:30:24 UTC
+**Last updated:** 2026-10-13 22:33:47 UTC
